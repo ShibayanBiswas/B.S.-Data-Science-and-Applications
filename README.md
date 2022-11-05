@@ -1,0 +1,1 @@
+Indian Institute of Technology Madras is a public technical university located in Chennai, Tamil Nadu, India. As one of the Indian Institutes of Technology, it is recognized as an Institute of National Importance and has been consistently rated as one of India's most prestigious universities.
